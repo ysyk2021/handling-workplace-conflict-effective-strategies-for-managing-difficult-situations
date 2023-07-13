@@ -1,4 +1,4 @@
-Chapter 4: Understanding the Power of Conflict Management: Addressing Limiting Beliefs
+Addressing Limiting Beliefs
 ======================================================================================
 
 Addressing limiting beliefs is critical for developing effective conflict management skills in the workplace. Limiting beliefs can prevent managers and employees from effectively managing conflicts, leading to negative outcomes and strained relationships.

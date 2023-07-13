@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Conflict Management Skills: Fostering Continuous Learning and Improvement
+Fostering Continuous Learning and Improvement
 ====================================================================================================
 
 Fostering continuous learning and improvement is critical for developing effective conflict management skills in the workplace. By recognizing the importance of ongoing learning and development, managers and employees can develop a more proactive approach to managing conflicts.

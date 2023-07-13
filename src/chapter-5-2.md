@@ -1,4 +1,4 @@
-Chapter 5: Maximizing Your Conflict Management Skills: Finding Ways to Manage Difficult Situations Effectively
+Finding Ways to Manage Difficult Situations Effectively
 ==============================================================================================================
 
 Maximizing your conflict management skills is critical for promoting positive relationships and achieving better outcomes in the workplace. Managing difficult situations effectively requires a proactive approach and targeted strategies.

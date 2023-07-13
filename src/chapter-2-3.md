@@ -1,4 +1,4 @@
-Chapter 2: Defining Workplace Conflict: Assessing Your Personal Approach to Conflict
+Assessing Your Personal Approach to Conflict
 ====================================================================================
 
 Effective conflict management requires self-awareness and an understanding of your personal approach to conflict. This involves recognizing your own feelings, attitudes, and behaviors towards conflict.

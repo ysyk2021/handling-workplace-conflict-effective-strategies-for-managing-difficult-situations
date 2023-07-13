@@ -1,4 +1,4 @@
-Chapter 10: Measuring Results and Learning from Experience: Tracking Progress and Measuring Results
+Tracking Progress and Measuring Results
 ===================================================================================================
 
 Managing conflicts in the workplace requires ongoing effort and a commitment to continuous improvement. By tracking progress and measuring results, managers and employees can identify areas for improvement and build on successes.

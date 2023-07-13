@@ -1,4 +1,4 @@
-Chapter 7: Managing Resistance to Conflict Management: Fostering a Growth Mindset
+Fostering a Growth Mindset
 =================================================================================
 
 Fostering a growth mindset is critical for overcoming resistance to conflict management in the workplace. By encouraging team members to embrace challenges and view conflicts as opportunities for growth and learning, managers and employees can promote a more proactive approach to conflict management.

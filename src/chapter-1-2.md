@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Common Misconceptions About Workplace Conflict
+Common Misconceptions About Workplace Conflict
 =======================================================================
 
 Workplace conflict is a common occurrence that affects employees at all levels. However, there are many misconceptions about workplace conflict that can hinder effective management and resolution.

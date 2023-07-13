@@ -1,4 +1,4 @@
-Chapter 9: Leveraging Technology for Conflict Management: Fostering Accessibility and Inclusivity
+Fostering Accessibility and Inclusivity
 =================================================================================================
 
 Leveraging technology can be a powerful tool for managing conflicts in the workplace. However, it is important to ensure that technology is accessible and inclusive for all team members, regardless of their abilities or backgrounds. By fostering accessibility and inclusivity, managers and employees can promote positive relationships and achieve better outcomes when managing conflicts.

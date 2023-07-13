@@ -1,4 +1,4 @@
-Chapter 8: Creating a Culture of Conflict Management: Encouraging Proactive Conflict Management Across the Organization
+Encouraging Proactive Conflict Management Across the Organization
 =======================================================================================================================
 
 Creating a culture of conflict management is essential for promoting a healthy work environment. By encouraging proactive conflict management across the organization, managers and employees can prevent conflicts from escalating and promote positive relationships in the workplace.

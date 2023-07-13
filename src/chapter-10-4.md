@@ -1,4 +1,4 @@
-Chapter 10: Measuring Results and Learning from Experience: Adapting to Changes in the Workplace
+Adapting to Changes in the Workplace
 ================================================================================================
 
 Adapting to changes in the workplace is an essential component of effective conflict management. As the workplace evolves, managers and employees must be able to adjust their conflict resolution strategies accordingly.

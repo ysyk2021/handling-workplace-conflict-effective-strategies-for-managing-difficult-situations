@@ -1,4 +1,4 @@
-Chapter 3: Developing a Conflict Management Mindset: Techniques for Cultivating a Conflict Management Mindset
+Techniques for Cultivating a Conflict Management Mindset
 =============================================================================================================
 
 Cultivating a conflict management mindset is critical for promoting positive relationships and achieving better outcomes in the workplace. By developing a proactive approach to managing conflicts, managers and employees can prevent conflicts from escalating into more serious problems.

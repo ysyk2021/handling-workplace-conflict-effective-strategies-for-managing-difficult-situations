@@ -1,4 +1,4 @@
-Chapter 11: Conclusion: Recap of Key Strategies for Managing Workplace Conflict
+Recap of Key Strategies for Managing Workplace Conflict
 ===============================================================================
 
 Managing conflicts in the workplace is a challenging but important task. By understanding the principles of effective conflict management, developing strategies for managing conflicts, fostering a culture of conflict management, leveraging technology, and celebrating achievements, managers and employees can achieve better outcomes and promote positive relationships.

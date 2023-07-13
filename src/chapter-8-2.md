@@ -1,4 +1,4 @@
-Chapter 8: Creating a Culture of Conflict Management: Providing Training and Professional Development Opportunities
+Providing Training and Professional Development Opportunities
 ===================================================================================================================
 
 Providing training and professional development opportunities is an important component of creating a culture of conflict management. By investing in employees' conflict resolution skills, managers and organizations can promote a healthy work environment and prevent conflicts from escalating.

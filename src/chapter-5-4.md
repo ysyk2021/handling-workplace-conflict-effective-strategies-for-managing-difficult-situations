@@ -1,4 +1,4 @@
-Chapter 5: Maximizing Your Conflict Management Skills: Fostering Trust and Respect
+Fostering Trust and Respect
 ==================================================================================
 
 Effective conflict management skills are essential for handling difficult situations in the workplace. It involves fostering trust and respect among colleagues to promote open communication and collaboration.

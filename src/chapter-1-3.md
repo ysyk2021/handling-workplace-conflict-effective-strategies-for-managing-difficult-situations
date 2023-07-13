@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Benefits of Handling Conflict Effectively
+Benefits of Handling Conflict Effectively
 ==================================================================
 
 Conflict is an inevitable part of any workplace. However, handling conflict effectively can have numerous benefits for individuals and organizations. This book aims to provide effective strategies for managing difficult situations in the workplace.

@@ -1,4 +1,4 @@
-Chapter 5: Maximizing Your Conflict Management Skills: Communicating Clearly and Effectively
+Communicating Clearly and Effectively
 ============================================================================================
 
 Effective communication is a critical component of conflict management. It involves expressing your thoughts and feelings clearly and listening actively and empathetically to others' concerns.

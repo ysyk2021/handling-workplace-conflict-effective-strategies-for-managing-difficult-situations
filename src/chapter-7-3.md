@@ -1,4 +1,4 @@
-Chapter 7: Managing Resistance to Conflict Management: Addressing Fear and Uncertainty
+Addressing Fear and Uncertainty
 ======================================================================================
 
 Fear and uncertainty can sometimes hinder effective conflict management in the workplace. To overcome resistance, managers and employees need to develop strategies that address the underlying causes of fear and uncertainty.

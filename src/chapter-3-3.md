@@ -1,4 +1,4 @@
-Chapter 3: Developing a Conflict Management Mindset: Setting Realistic Goals and Objectives
+Setting Realistic Goals and Objectives
 ===========================================================================================
 
 Developing a conflict management mindset is critical for promoting positive relationships and achieving better outcomes in the workplace. This involves setting realistic goals and objectives for managing conflicts, as well as developing strategies for achieving those goals.

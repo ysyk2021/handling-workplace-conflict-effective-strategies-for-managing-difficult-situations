@@ -1,4 +1,4 @@
-Chapter 4: Understanding the Power of Conflict Management: Recognizing How Conflict Management Contributes to Success
+Recognizing How Conflict Management Contributes to Success
 =====================================================================================================================
 
 Effective conflict management is critical for promoting positive relationships and achieving better outcomes in the workplace. By recognizing the power of conflict management, managers and employees can develop a more proactive approach to managing conflicts.

@@ -1,4 +1,4 @@
-Chapter 2: Defining Workplace Conflict: Overview of Workplace Conflict
+Overview of Workplace Conflict
 ======================================================================
 
 Workplace conflict is a common occurrence that affects employees at all levels and can have negative impacts on productivity, job satisfaction, and overall well-being in the workplace. Understanding the nature of workplace conflict is essential for effectively managing and resolving it.
