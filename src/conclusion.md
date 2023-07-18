@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 11: Conclusion
-======================
-
 Effective conflict management is essential for creating a healthy work environment and promoting positive relationships in the workplace. By using effective conflict management strategies, managers and employees can prevent conflicts from escalating and achieve better outcomes as a team.
 
 In this chapter, we will recap some of the key strategies for managing workplace conflict and provide final thoughts and advice.
