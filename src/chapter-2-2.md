@@ -1,5 +1,3 @@
-Understanding the Science Behind Conflict
-=================================================================================
 
 Conflict is a natural part of human interaction and can arise in any workplace. Understanding the science behind conflict can help managers and employees effectively manage and resolve conflicts.
 

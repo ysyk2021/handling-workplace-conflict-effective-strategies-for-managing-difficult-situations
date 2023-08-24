@@ -1,5 +1,3 @@
-Overview of Workplace Conflict
-======================================================================
 
 Workplace conflict is a common occurrence that affects employees at all levels and can have negative impacts on productivity, job satisfaction, and overall well-being in the workplace. Understanding the nature of workplace conflict is essential for effectively managing and resolving it.
 
@@ -52,5 +50,4 @@ Conclusion
 ----------
 
 Workplace conflict is a common occurrence that can have negative impacts on individuals and organizations. Understanding the causes, types, and effects of workplace conflict is essential for effectively managing and resolving conflicts in the workplace. By doing this, managers and employees can create a healthy work environment where conflicts are addressed proactively and collaboratively.
-
 

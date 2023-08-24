@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Conflict Management
-=====================================================
 
 Managing resistance to conflict management is critical for promoting positive relationships in the workplace. By identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset, managers and employees can develop a more effective approach to managing conflicts.
 

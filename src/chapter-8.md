@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Conflict Management
-====================================================
 
 Creating a culture of conflict management is essential for promoting positive relationships in the workplace and preventing conflicts from escalating. By encouraging proactive conflict management and providing training and professional development opportunities, managers and employees can develop the skills they need to effectively manage conflicts.
 

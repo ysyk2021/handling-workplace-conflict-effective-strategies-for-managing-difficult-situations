@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Conflict Management Experience
-=========================================================================================================================
 
 Technology can be a valuable tool for managing workplace conflict. By using technology to enhance your conflict management experience, managers and employees can achieve better outcomes and promote positive relationships in the workplace.
 

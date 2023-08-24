@@ -1,5 +1,3 @@
-Identifying Conflict Management Technologies and Resources
-====================================================================================================================
 
 Technology can be a valuable tool for managing workplace conflict. By identifying conflict management technologies and resources, managers and employees can streamline their conflict management efforts and achieve better outcomes.
 

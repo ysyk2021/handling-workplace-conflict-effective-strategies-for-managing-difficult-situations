@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Effective conflict management requires ongoing evaluation and reflection. By tracking progress, measuring results, and learning from experience, managers and employees can continuously improve their conflict management skills.
 

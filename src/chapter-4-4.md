@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-======================================================================================
 
 Addressing limiting beliefs is critical for developing effective conflict management skills in the workplace. Limiting beliefs can prevent managers and employees from effectively managing conflicts, leading to negative outcomes and strained relationships.
 
@@ -29,5 +27,4 @@ Conclusion
 ----------
 
 Addressing limiting beliefs is critical for developing effective conflict management skills in the workplace. This includes identifying limiting beliefs, challenging assumptions, practicing self-awareness, and seeking support. By promoting respectful communication, collaboration, and creative problem-solving, managers and employees can achieve better results as a team and promote positive relationships in the workplace.
-
 

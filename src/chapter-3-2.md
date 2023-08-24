@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-===================================================================================================
 
 Developing a conflict management mindset is critical for promoting positive relationships and achieving better outcomes in the workplace. By utilizing positive self-talk and visualization, managers and employees can develop a more proactive approach to managing conflicts.
 

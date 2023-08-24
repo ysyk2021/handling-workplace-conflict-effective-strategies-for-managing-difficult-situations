@@ -1,5 +1,3 @@
-Identifying Opportunities to Manage Conflict in the Workplace
-====================================================================================================================
 
 Maximizing your conflict management skills is critical for promoting positive relationships and achieving better outcomes in the workplace. By identifying opportunities to manage conflict, managers and employees can develop a more proactive approach to conflict management.
 

@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Conflict Management
-=========================================================
 
 Understanding the power of conflict management is critical for promoting positive relationships in the workplace. By recognizing the benefits of focusing on conflict management, understanding how conflict management contributes to success, analyzing the impact of conflict on individuals and organizations, and addressing limiting beliefs, managers and employees can develop a more effective approach to managing conflicts.
 

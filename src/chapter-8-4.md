@@ -1,5 +1,3 @@
-Celebrating Conflict Management Achievements
-==================================================================================================
 
 Celebrating conflict management achievements is an important component of creating a culture of conflict management in the workplace. By acknowledging and celebrating successful conflict resolution, managers and employees can promote positive relationships and encourage a more proactive approach to managing conflicts.
 

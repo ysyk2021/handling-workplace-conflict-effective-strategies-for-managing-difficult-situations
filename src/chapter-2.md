@@ -1,5 +1,3 @@
-Chapter 2: Defining Workplace Conflict
-======================================
 
 Workplace conflict is a common occurrence that can arise from a variety of sources, including differences in personality, communication styles, and competing interests. Managing conflicts effectively is critical for promoting positive relationships in the workplace and achieving better outcomes.
 

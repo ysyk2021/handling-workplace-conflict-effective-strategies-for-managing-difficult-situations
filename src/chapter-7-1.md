@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Conflict Management
-======================================================================================================================
 
 Managing conflicts in the workplace can sometimes be met with resistance from team members. Resistance to conflict management can come from a variety of sources, including personal beliefs and attitudes, fear of change, and lack of trust in management.
 

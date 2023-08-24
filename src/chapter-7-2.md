@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-======================================================================================================
 
 Resistance to conflict management can sometimes hinder effective conflict resolution in the workplace. To overcome resistance, managers and employees need to develop strategies that address the underlying causes of this resistance.
 

@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Conflict Management
-========================================================
 
 Technology can be a valuable tool for managing workplace conflict. From virtual collaboration tools to online dispute resolution platforms, there are a variety of technologies and resources available to support effective conflict management.
 

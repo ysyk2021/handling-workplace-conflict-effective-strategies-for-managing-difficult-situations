@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Conflict in the workplace is a common occurrence that can have significant impacts on productivity, employee satisfaction, and organizational culture. Effective conflict management is critical for promoting positive relationships and achieving better outcomes.
 

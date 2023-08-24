@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Conflict Management
-==================================================================================================================
 
 Developing empathy and compassion is critical for effective conflict management in the workplace. By understanding and relating to the perspectives of others, managers and employees can promote positive relationships and achieve better outcomes.
 

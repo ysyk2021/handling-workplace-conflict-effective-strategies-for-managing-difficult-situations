@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Conflict Management Skills
-=====================================================
 
 Developing your conflict management skills is critical for promoting positive relationships in the workplace. By understanding the principles of effective conflict management, developing strategies for managing conflict effectively, utilizing feedback and coaching, and fostering continuous learning and improvement, managers and employees can develop the skills they need to manage conflicts successfully.
 

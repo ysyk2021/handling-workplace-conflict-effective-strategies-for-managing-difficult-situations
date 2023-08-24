@@ -1,5 +1,3 @@
-Chapter 3: Developing a Conflict Management Mindset
-===================================================
 
 Developing a conflict management mindset is critical for promoting positive relationships in the workplace. By cultivating a mindset that emphasizes communication, collaboration, and creative problem-solving, managers and employees can develop the skills they need to manage conflicts effectively.
 

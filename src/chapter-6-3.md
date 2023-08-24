@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-======================================================================================
 
 Developing your conflict management skills is critical for promoting positive relationships and achieving better outcomes in the workplace. By utilizing feedback and coaching, managers and employees can identify areas for improvement and develop strategies for managing conflicts more effectively.
 

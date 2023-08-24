@@ -1,5 +1,3 @@
-Avoiding Information Overload
-=======================================================================================
 
 Leveraging technology can be a valuable strategy for managing conflicts in the workplace. However, with so many tools and platforms available, it can be easy to become overwhelmed by information overload. By understanding how to use technology effectively, managers and employees can avoid information overload and develop a more efficient and effective approach to conflict management.
 
