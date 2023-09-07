@@ -6,3 +6,7 @@ Through this book, readers will learn how to identify the root causes of workpla
 Whether you're just starting out in your career or looking to enhance your conflict resolution skills, "Handling Workplace Conflict" offers valuable insights and practical tips to help you manage difficult situations with confidence and ease. So if you're ready to take control of your professional life and build stronger, more positive relationships with your colleagues and superiors, start reading "Handling Workplace Conflict" today.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
