@@ -1,5 +1,4 @@
-Chapter 20: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering knowledge sharing and mentorship as a strategy for effectively handling workplace conflict. Encouraging employees to share their expertise and experiences and providing mentorship opportunities enables them to learn and grow from each other, enhancing their conflict resolution skills and improving overall team dynamics.
 

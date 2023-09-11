@@ -1,5 +1,4 @@
-Chapter 6: Developing Strategies for Managing Conflict Effectively
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict is a natural part of any workplace, and effectively managing conflict is essential for creating a positive and productive work environment. In this chapter, we will explore strategies that can help you manage conflict effectively and maintain positive working relationships with colleagues even in difficult situations.
 

@@ -1,5 +1,4 @@
-Chapter 11: Recognizing How Conflict Management Contributes to Success
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict management plays a crucial role in the success of individuals and organizations in the workplace. In this chapter, we will explore the various ways effective conflict management contributes to overall success and the benefits it brings.
 

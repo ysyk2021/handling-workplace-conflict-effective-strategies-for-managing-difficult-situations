@@ -1,5 +1,4 @@
-Chapter 11: Fostering Continuous Learning and Improvement
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuous learning and improvement are essential for effectively managing workplace conflict. In this chapter, we will explore strategies to foster a culture of learning and growth, enabling individuals and organizations to enhance their conflict management capabilities continuously.
 

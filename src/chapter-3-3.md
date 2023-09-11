@@ -1,5 +1,4 @@
-Chapter 11: Setting Realistic Goals and Objectives
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of setting realistic goals and objectives when it comes to handling workplace conflict. By establishing clear and achievable goals, individuals and organizations can navigate difficult situations more effectively and increase the chances of successful conflict resolution.
 

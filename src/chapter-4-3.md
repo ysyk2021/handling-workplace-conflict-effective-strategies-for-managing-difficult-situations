@@ -1,5 +1,4 @@
-Chapter 10: Analyzing the Impact of Conflict on Individuals and Organizations
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflicts in the workplace can have significant impacts on both individuals and organizations. In this chapter, we will examine the various effects of conflict and explore how understanding these impacts can help in effectively managing difficult situations.
 

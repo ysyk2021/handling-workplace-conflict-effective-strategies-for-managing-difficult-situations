@@ -1,5 +1,4 @@
-Chapter 10: Identifying Opportunities to Manage Conflict in the Workplace
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for identifying opportunities to manage conflict in the workplace. By proactively addressing conflicts and taking a proactive approach, organizations can foster a culture of constructive conflict management and create a more productive and harmonious work environment.
 

@@ -1,5 +1,4 @@
-Chapter 8: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and visualization as effective strategies for managing workplace conflict and difficult situations. By harnessing the potential of our thoughts and imagination, we can enhance our mindset, boost confidence, and navigate conflicts more effectively.
 

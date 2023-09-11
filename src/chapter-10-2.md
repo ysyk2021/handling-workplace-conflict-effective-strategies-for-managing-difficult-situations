@@ -1,5 +1,4 @@
-Chapter 12: Reflection and Self-Evaluation
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of reflection and self-evaluation in managing workplace conflict and difficult situations. By taking time to reflect on our experiences and evaluate our actions, we can gain valuable insights that lead to personal growth and improved conflict resolution strategies.
 

@@ -1,5 +1,4 @@
-Chapter 9: Addressing Fear and Uncertainty
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Fear and uncertainty are common emotions that can arise during workplace conflict. In this chapter, we will explore effective strategies for addressing fear and uncertainty to promote constructive conflict management outcomes.
 

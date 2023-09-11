@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Personal Approach to Conflict
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding your personal approach to conflict is essential for effective conflict management. In this chapter, we will explore various assessment tools and techniques that can help you gain insight into your preferred conflict-handling style and identify areas for personal growth.
 

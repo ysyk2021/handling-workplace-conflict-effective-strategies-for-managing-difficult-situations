@@ -1,5 +1,4 @@
-Chapter 5: Identifying Common Sources of Resistance to Conflict Management
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resistance to conflict management can hinder efforts to effectively address workplace conflicts. In this chapter, we will explore common sources of resistance and provide insights into how to identify and navigate them.
 

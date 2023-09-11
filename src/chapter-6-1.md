@@ -1,5 +1,4 @@
-Chapter 9: Understanding the Principles of Effective Conflict Management
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to successfully navigate difficult workplace situations, it is essential to understand and apply the principles of effective conflict management. In this chapter, we will explore the key principles that underpin successful conflict resolution strategies and how they can be applied in different scenarios.
 

@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Cultivating a Conflict Management Mindset
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a conflict management mindset. Developing a mindset focused on effective conflict resolution is crucial for managing workplace conflict and difficult situations in a constructive and productive manner.
 

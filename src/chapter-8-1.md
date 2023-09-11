@@ -1,5 +1,4 @@
-Chapter 21: Encouraging Proactive Conflict Management Across the Organization
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging proactive conflict management across the organization as a strategy for effectively handling workplace conflict. By promoting a culture of proactive conflict management, employees can be empowered to address conflicts early and prevent them from escalating into larger issues.
 

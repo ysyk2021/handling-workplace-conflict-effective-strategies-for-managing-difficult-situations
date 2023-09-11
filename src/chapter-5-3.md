@@ -1,5 +1,4 @@
-Chapter 3: Communicating Clearly and Effectively
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Clear and effective communication is a vital skill for successfully handling workplace conflicts. In this chapter, we will explore the importance of clear communication in conflict resolution and provide strategies for enhancing communication effectiveness.
 

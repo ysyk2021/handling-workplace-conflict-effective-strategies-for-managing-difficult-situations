@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Focusing on Conflict Management
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict is an inevitable part of any workplace, but rather than avoiding or suppressing it, focusing on conflict management can have numerous benefits for individuals and organizations. In this chapter, we will explore the advantages of prioritizing conflict management and how it can contribute to a healthier and more productive work environment.
 

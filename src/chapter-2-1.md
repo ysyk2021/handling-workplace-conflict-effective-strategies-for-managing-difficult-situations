@@ -1,5 +1,4 @@
-Chapter 1: Overview of Workplace Conflict
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace conflict is a common occurrence that can arise from various factors and have significant implications for individuals and organizations. In this chapter, we will provide an overview of workplace conflict, its causes, types, and the impact it can have on individuals and teams.
 

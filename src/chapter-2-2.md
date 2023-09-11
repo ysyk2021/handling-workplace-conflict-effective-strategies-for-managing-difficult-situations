@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Science Behind Conflict
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict is a natural occurrence in human interactions and can have both positive and negative consequences. In this chapter, we will explore the science behind conflict, including the physiological and psychological mechanisms that contribute to its onset, escalation, and resolution.
 

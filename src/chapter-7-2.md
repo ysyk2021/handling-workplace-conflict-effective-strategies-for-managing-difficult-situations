@@ -1,5 +1,4 @@
-Chapter 8: Developing Strategies for Overcoming Resistance
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resistance is a common challenge encountered in workplace conflict resolution. In this chapter, we will explore effective strategies for overcoming resistance and finding collaborative solutions to difficult situations.
 

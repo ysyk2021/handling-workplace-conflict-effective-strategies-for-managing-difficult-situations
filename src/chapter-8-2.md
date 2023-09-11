@@ -1,5 +1,4 @@
-Chapter 19: Providing Training and Professional Development Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing training and professional development opportunities as a strategy for effectively handling workplace conflict. Investing in the growth and skill development of employees not only enhances their individual capabilities but also equips them with the tools and knowledge necessary to navigate conflicts in the workplace successfully.
 

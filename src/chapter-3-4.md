@@ -1,5 +1,4 @@
-Chapter 7: Developing Empathy and Compassion through Conflict Management
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Empathy and compassion are powerful tools for effective conflict management in the workplace. In this chapter, we will explore how to develop and cultivate these qualities to enhance conflict resolution outcomes.
 

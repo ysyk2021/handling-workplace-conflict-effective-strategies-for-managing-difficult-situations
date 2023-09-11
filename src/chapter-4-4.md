@@ -1,5 +1,4 @@
-Chapter 4: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Limiting beliefs are deeply held assumptions and perceptions that hinder our ability to effectively handle workplace conflicts. In this chapter, we will explore the impact of limiting beliefs on conflict management and discuss strategies for identifying and addressing them.
 

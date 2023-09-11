@@ -1,5 +1,4 @@
-Chapter 18: Using Technology to Enhance Your Conflict Management Experience
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how technology can be leveraged to enhance your conflict management experience. Advancements in technology have provided us with a wide array of tools and resources that can streamline communication, facilitate collaboration, and promote effective resolution of workplace conflicts. By harnessing the power of technology, individuals can navigate conflicts more efficiently and create a harmonious work environment.
 

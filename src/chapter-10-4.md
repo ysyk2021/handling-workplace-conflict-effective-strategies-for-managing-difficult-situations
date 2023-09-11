@@ -1,5 +1,4 @@
-Chapter 17: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for adapting to changes in the workplace. As organizations evolve and external factors constantly reshape the business landscape, individuals must develop the skills and mindset necessary to navigate these transitions successfully. By understanding the nature of change and implementing adaptive strategies, individuals can thrive amidst uncertainty and contribute to a positive work environment.
 

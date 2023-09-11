@@ -1,5 +1,4 @@
-Chapter 11: Continuous Learning and Improvement
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of continuous learning and improvement in managing workplace conflict and difficult situations. By prioritizing ongoing growth and development, individuals can enhance their conflict management skills, expand their knowledge, and adapt to evolving challenges.
 

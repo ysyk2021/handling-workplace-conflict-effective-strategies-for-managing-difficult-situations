@@ -1,5 +1,4 @@
-Chapter 14: Identifying Conflict Management Technologies and Resources
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various technologies and resources available to manage workplace conflict effectively. By utilizing these resources, individuals can streamline conflict resolution processes, enhance communication, and foster a positive work environment.
 

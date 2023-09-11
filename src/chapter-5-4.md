@@ -1,5 +1,4 @@
-Chapter 12: Fostering Trust and Respect
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of fostering trust and respect in effectively managing workplace conflict. Trust and respect are essential elements for creating a positive work environment where conflicts can be addressed constructively and resolved harmoniously.
 

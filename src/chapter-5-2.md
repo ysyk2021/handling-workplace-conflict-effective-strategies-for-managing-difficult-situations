@@ -1,5 +1,4 @@
-Chapter 6: Finding Ways to Manage Difficult Situations Effectively
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing difficult situations is a crucial skill for successfully handling workplace conflicts. In this chapter, we will explore effective strategies for managing difficult situations and navigating challenging conversations during conflict resolution.
 

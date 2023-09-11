@@ -1,5 +1,4 @@
-Chapter 13: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of tracking progress and measuring results when it comes to managing workplace conflict and difficult situations. By establishing clear metrics and monitoring our efforts, we can evaluate the effectiveness of our strategies, make informed adjustments, and achieve continuous improvement.
 
